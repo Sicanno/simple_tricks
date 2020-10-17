@@ -1,0 +1,1 @@
+# tricks_for_all
